@@ -4,8 +4,7 @@ This site will be a home for me and my works. A place to share where I've been, 
 
 I hope you will spend time here and join me every so often. 
 
-cheers,\
-r
+cheers, \
 A
 
 ☕
